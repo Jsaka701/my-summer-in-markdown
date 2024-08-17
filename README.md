@@ -1,6 +1,6 @@
 <<<<<<< HEAD
 
-# My Summer
+# My Summer ☀️
 ## **Introduction👋🏽**
 Hi, my name is Joren Sakamoto. I am 17 and currently a senior in the G+STEAM Magnet at Chatsworth Charter Highschool. Some of my hobbies include photography, videography, volleyball. I have 2 siblings, one that lives home and one that lives in Japan. I am half Japanese and half Filipino
 
